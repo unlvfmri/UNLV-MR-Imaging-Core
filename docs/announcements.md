@@ -2,11 +2,13 @@
 
     Stay updated with the latest UMIC announcements.
 
-*Last updated: March 2026
+*Last updated: September 2026
 
 ---
 
-### May 2026
+### September 2026
+- UMIC Open House
+- Tuesday, September 15th, 10am-2pm, SEB 1235
 
 ---
 
