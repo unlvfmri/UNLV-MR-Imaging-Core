@@ -7,8 +7,7 @@
 ---
 
 ### September 2026
-- UMIC Open House
-- Tuesday, September 15th, 10am-2pm, SEB 1235
+- UMIC Open House: Tuesday, September 15th, 10am-2pm, SEB 1235
 
 ---
 
